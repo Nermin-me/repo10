@@ -2,6 +2,7 @@
 ##Happy Day
 '''new yaer with happy dream'''
 
+
        hi		
 
 
@@ -13,3 +14,6 @@
    
 
 "...no to have but something to do "
+=======
+no thing you  have
+
