@@ -7,12 +7,7 @@
 
 
      "be happy ever'
-
-"nice to be together"
      
-  	"aufaaaaaaaa"
-   
-
 "...no to have but something to do "
 =======
 no thing you  have
